@@ -1,0 +1,1 @@
+# MindMate---AI-powered-Mental-Wellness-and-Journaling-Platform
